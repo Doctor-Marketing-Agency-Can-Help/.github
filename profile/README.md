@@ -10,7 +10,7 @@ They’ve clicked the next doctor on the list… and booked an appointment with 
 
 Sound brutal? It is. And it’s happening to hundreds of doctors every single day.
 
-At **Intellius Medical**, a leading **Doctor Marketing Agency**, we’ve seen firsthand how slow websites quietly destroy practices that deserve to thrive. It’s not just "bad luck" — it's a fixable marketing mistake that costs real patients and real revenue.
+At **Intellius Medical**, a leading **[doctor marketing agency](https://www.intelliusmedical.com/)**, we’ve seen firsthand how slow websites quietly destroy practices that deserve to thrive. It’s not just "bad luck" — it's a fixable marketing mistake that costs real patients and real revenue.
 
 Let’s dive deeper into the real cost of a slow site… and how the right **Doctor Marketing Agency** (like us) can turn things around.
 
